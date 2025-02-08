@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming things
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me? Youcan reach me at reyaanshsinha006@gmail.com
+- 📫 How to reach me? You can reach me at reyaanshsinha006@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
